@@ -1,1 +1,1 @@
-![Screenshot_۲۰۲۴۱۰۱۸_۱۲۳۸۳۹_Samsung Internet](https://github.com/user-attachments/assets/905fcc5b-afd0-4cf4-adfd-4a5950e9393d)
+![Screenshot_۲۰۲۴۱۰۱۸_۱۲۳۶۰۲_Samsung Internet](https://github.com/user-attachments/assets/431affda-11ab-4208-9e88-31d04c4a304f)
