@@ -1,4 +1,5 @@
-![InShot_۲۰۲۴۱۰۱۹_۰۱۱۴۱۶۲۶۸](https://github.com/user-attachments/assets/6d09f717-6105-4b44-925b-8f4d0b9836ec)
+![Screenshot_۲۰۲۴۱۰۱۸_۲۳۳۰۳۳_Google](https://github.com/user-attachments/assets/08785c22-68d0-4438-9a00-9286549c8565)
+
 # مرگ بر ایران
 --------
 کانال آموزش تلگرام ما :
