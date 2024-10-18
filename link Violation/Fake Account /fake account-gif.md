@@ -4,3 +4,6 @@
 # حساب جعلی سروش
 # حساب جعلی شاد
 # حساب جعلی بله
+-------
+کانال آموزش تلگرام ما :
+[@Filtering_Hacking](https://t.me/Filtering_Hacking)
