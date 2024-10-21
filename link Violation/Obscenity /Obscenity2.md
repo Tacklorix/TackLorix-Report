@@ -1,4 +1,5 @@
-![۲۰۲۴۱۰۲۲_۱۵۴۲۴۴](https://github.com/user-attachments/assets/c53e8d8f-bb24-45ee-8f3f-27084abdffc2)
+![۲۰۲۴۱۰۲۲_۱۵۴۲۴۴](https://github.com/user-attachments/assets/fc639f28-c70d-4001-ac4e-c4dc96d5cba8)
+
 # فحاشی در پیام رسان روبیکا
 ------
 کانال آموزش تلگرام ما :
