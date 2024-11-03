@@ -15,7 +15,11 @@
 ![photo_2_2024-10-29_19-31-19](https://github.com/user-attachments/assets/1a38e683-b0a0-4772-9e18-e783bd07b1ad)
 ![photo_1_2024-10-29_19-32-19](https://github.com/user-attachments/assets/c88ee2f6-78c5-4e73-a652-90d7044b9e21)
 ![photo_1_2024-10-29_19-31-19](https://github.com/user-attachments/assets/337fea98-16c7-4779-bfd0-b0f93a73b18a)
-
+# خشونت آمیز
+# ارسال محتوای خشونت آمیز در پیام رسان های ایرانی
+# ارسال تصاویر خشونت آمیز به کابران
+# انتشار تصاویر خشونت آمیز در فضای مجازی ایران
+# ارسال گیف ها و ویدیو های خشونت آمیز 
 --------------------
 کانال آموزش تلگرام ما :
 [@Filtering_Hacking](https://t.me/Filtering_Hacking)
