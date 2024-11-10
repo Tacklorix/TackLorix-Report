@@ -233,4 +233,7 @@ http://sexy.porn/Yftt15k0.0.8.7.//5.7.4.//-8.6.9.7.0.Filter.account.rubikaPostse
 https://jizzbunker-com.translate.goog/?_x_tr_sl=en&_x_tr_tl=fa&_x_tr_hl=fa&_x_tr_pto=sc
 --------------
 # Report this user
+--------------------
+کانال آموزش تلگرام ما :
+[@Filtering_Hacking](https://t.me/Filtering_Hacking)
 ----------------
