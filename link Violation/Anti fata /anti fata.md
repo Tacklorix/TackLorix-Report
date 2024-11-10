@@ -18,3 +18,7 @@
 ![Screenshot_۲۰۲۴۱۰۱۸_۱۲۳۶۰۲_Samsung Internet](https://github.com/user-attachments/assets/0196a6ce-d520-48dc-add9-68954420cee7)
 ![Screenshot_۲۰۲۴۱۰۱۸_۱۲۳۸۳۹_Samsung Internet](https://github.com/user-attachments/assets/b11adc9f-1c1d-4495-97d2-e41c34cb4662)
 ![Screenshot_۲۰۲۴۱۰۱۸_۱۲۳۹۱۴_Samsung Internet](https://github.com/user-attachments/assets/aa77d993-1969-4571-91c3-89f0e22d548b)
+# ضد سازمان فتا
+--------------------
+کانال آموزش تلگرام ما :
+[@Filtering_Hacking](https://t.me/Filtering_Hacking)
